@@ -2,6 +2,8 @@
 
 **Papa’s Scooperia Online** is the **ultimate dessert-making simulator** that combines fast-paced gameplay, creative cooking, and fun time-management challenges. In this **epic arcade adventure**, you step into the shoes of a stranded traveler who must survive by scooping, baking, and serving the most **delicious cookies and ice cream sundaes** in town!
 
+## <a href="https://1kb.link/QEVh4H">👉 Play Now Papa's Scooperia Unblocked 👈</a>
+
 ---
 
 ### 🎮 Game Overview
